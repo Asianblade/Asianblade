@@ -1,13 +1,22 @@
 # Most Prestigious Twitter Accounts:
 https://twitter.com/JeremyClarkson
+
 https://twitter.com/StephenDrew72
+
 https://twitter.com/Nigelrefowens
+
 https://twitter.com/TrumpWarRoom
+
 https://twitter.com/MrJamesMay
+
 https://twitter.com/davidwalliams
+
 https://twitter.com/elonmusk
+
 https://twitter.com/BorisJohnson
+
 https://twitter.com/Max33Verstappen
+
 
 # Интернационал
 Вставай, проклятьем заклеймённый,
@@ -18,8 +27,7 @@ https://twitter.com/Max33Verstappen
 До основанья, а затем
 Мы наш, мы новый мир построим, —
 Кто был ничем, тот станет всем.
- 
-Припев:
+
 Это есть наш последний
 И решительный бой;
 С Интернационалом
